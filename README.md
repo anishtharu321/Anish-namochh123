@@ -1,4 +1,4 @@
-### Hi there , Rabbani is here 👋
+### Hi there , Namo Tharu is here 👋
 
 - 🔭 I’m currently working on -- Projects
 - 🌱 I’m currently learning -- C
